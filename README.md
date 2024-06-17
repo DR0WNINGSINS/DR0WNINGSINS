@@ -7,3 +7,5 @@ $${\color{Pink}Heya!:3}$$
  
 $${\color{Pink}Welcome \space \color{White}To \space \color{Pink}My \space \color{White}Page}$$
 
+ <p align="right">
+<img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/>
