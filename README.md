@@ -1,3 +1,4 @@
+<img src="https://files.catbox.moe/510g5l.png"/>
  <p align="center">
  <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1252274916582101054/Untitled20_20240617075313.png?ex=66719f66&is=66704de6&hm=829b8caa3ccdd875af0f3e0c2f4b02c278bd36a8507bba7040dc4c8c6782cbaf&" width="500">
    <p align="center">
@@ -18,3 +19,8 @@ $${\color{Pink}This \space \color{White}page \space \color{Pink}is \space \color
 <img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/> <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1252295691485843557/Haruhi.gif?ex=6671b2bf&is=6670613f&hm=2c445063cd4ce41c4d6b0ca5a68a95be1ff28979a9bf00459f646b892cfb27a6&"/>
 
 $${\color{Pink}Pronouns: \space \color{White}she/her \space \color{Pink}I'm \space \color{White}a \space \color {Pink}Minor!!}$$
+
+
+ <p align="center">
+ <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1252274916582101054/Untitled20_20240617075313.png?ex=66719f66&is=66704de6&hm=829b8caa3ccdd875af0f3e0c2f4b02c278bd36a8507bba7040dc4c8c6782cbaf&" width="500">
+ <img src="https://files.catbox.moe/v54b7x.png"/>
