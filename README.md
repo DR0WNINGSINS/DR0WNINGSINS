@@ -10,12 +10,12 @@ $${\color{Pink}Heya!:3}$$
 $${\color{Pink}Welcome \space \color{White}To \space \color{Pink}My \space \color{White}Page}$$
 
 <p align="right">
-<img src="https://cdn.discordapp.com/attachments/1234273549250990172/1252295692043681792/Tamaki.gif?ex=667455bf&is=6673043f&hm=ef0848527bca23c55012ad184fa831d1c6a35a865d5638a6f1b5c666b4f266f1&" width="300"/> <img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/>  
+ <img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/>  
  
 $${\color{Pink}This \space \color{White}page \space \color{Pink}is \space \color{White}only \space \color {Pink}for \space \color{white} Experimenting!!}$$
   
 <p align="left">
- <img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/> <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1252295691485843557/Haruhi.gif?ex=6673043f&is=6671b2bf&hm=31b5f0d4cf6cbc284c9c5e9437484c2e0021f9b84ea0ff8ca8e25386c89dc6fe&"/>
+ <img src="https://img1.picmix.com/output/stamp/normal/0/0/5/7/2367500_71618.gif"/>
 
 $${\color{Pink}Pronouns: \space \color{White}she/her \space \color{Pink}I'm \space \color{White}a \space \color {Pink}Minor!!}$$
 
