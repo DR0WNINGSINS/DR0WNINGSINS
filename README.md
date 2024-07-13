@@ -9,4 +9,4 @@ idk putting random stamps!! ^_^
 <img src="https://64.media.tumblr.com/56b3bc512f4528d9730e1baceac62531/82688584107beceb-13/s100x200/a9789d7c4afad3e733bf703e3d9f01a0a510913a.gifv"/>
 <img src="https://64.media.tumblr.com/479fe3e418bc97f9c42f38dbbf1e627e/6adc6c8478d4d04c-98/s100x200/3fdfc4992654cd71345e59b872257243a3917f3d.jpg"/>
 
-yep, thats all!
+yep, thats all! check out my rentry for info about me :D
