@@ -16,7 +16,7 @@ idk putting random stamps!! ^_^
 <img src="https://64.media.tumblr.com/c85aa0a330e9bbfb28242b73d74fde01/3eb2a1ff3fce4504-dd/s100x200/50109bec446aa56ccbd2c6d5cce412a63d3e0af5.pnj"/>
 <img src="https://64.media.tumblr.com/f33d8b77aa72a039e9ad4ae2cb51389b/20ed56725570ded6-0d/s250x400/39b84bd8cdd5111982eb82c1e132c71e00aca4cd.pnj"/>
 
-yep, thats all! check out my rentry for info about me :D
+**yep, thats all! check out my rentry for info about me :D**
 
 credits to all artists ^_^
 
