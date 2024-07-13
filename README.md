@@ -4,9 +4,30 @@ idk putting random stamps!! ^_^
 <img src="https://64.media.tumblr.com/cdf9094f010ab35f118c60432db1ebcc/fea9fe6245597c7e-a3/s75x75_c1/1ed6579bbf0ebf1ee24ae335034a3f3f74ac8aa0.gifv"/>
 <img src="https://64.media.tumblr.com/4c0c0fd3ec6f2af9a627c1a94e799113/ec8f693b87536b40-ff/s100x200/d898d958c05485f99d1741a9558c06ddee9757ba.gifv"/>
 <img src="https://64.media.tumblr.com/282308cb68fcafe2de7ad200af895b2d/0a314c1722fc4072-9d/s100x200/c02d6e31a1a358791b58795c4d6c46cfff329cf4.gifv"/>
+<img src="https://64.media.tumblr.com/84dad5d56fd4d70dc3bd86e019dc9022/b81ff3c1ceb05456-f4/s100x200/2d58bcec7ddf20037dd1de04284fefcefc8af456.pnj"/>
 <img src="https://64.media.tumblr.com/cfb44b0f533d899dde48ba53d4c8b5fa/16ccc5ca2e0496d6-10/s100x200/2d697cfa245e8340b7193c03761bea6b29d72f77.gifv"/>
 <img src="https://64.media.tumblr.com/341d86cb0330e0f7e8fda556d57781cb/9696ceb6a9d4e781-bb/s250x400/6272496c0b698267339ff184ac01382b3a22127e.gifv"/>
 <img src="https://64.media.tumblr.com/56b3bc512f4528d9730e1baceac62531/82688584107beceb-13/s100x200/a9789d7c4afad3e733bf703e3d9f01a0a510913a.gifv"/>
 <img src="https://64.media.tumblr.com/479fe3e418bc97f9c42f38dbbf1e627e/6adc6c8478d4d04c-98/s100x200/3fdfc4992654cd71345e59b872257243a3917f3d.jpg"/>
+<img src="https://64.media.tumblr.com/f9b2ef60da7f4f5ebc62ef496fa26d8b/9313e36817049b56-4d/s100x200/a5db74cf0f738747971a2e036e41b11bb4b3ca67.gifv"/>
+<img src="https://64.media.tumblr.com/52f3cc456b1bdf8464db5c95eac29fa5/39e286ffc93b1357-b0/s100x200/1b463dbc7344507bbb89e09848b134a9644157b2.pnj"/>
+<img src="https://64.media.tumblr.com/391758c6f8a9b6bde7b52d7f191af6e0/39e286ffc93b1357-e9/s100x200/475a4c2f5565e868d32f4a2c6bfb69a1fd1fa746.gifv"/>
+<img src="https://64.media.tumblr.com/33ee92523b877ecf7d5e466bb93feb17/3eb2a1ff3fce4504-e9/s100x200/89afc04e05ec924b352c704c7698d3a628514f87.pnj"/>
+<img src="https://64.media.tumblr.com/c85aa0a330e9bbfb28242b73d74fde01/3eb2a1ff3fce4504-dd/s100x200/50109bec446aa56ccbd2c6d5cce412a63d3e0af5.pnj"/>
+<img src="https://64.media.tumblr.com/f33d8b77aa72a039e9ad4ae2cb51389b/20ed56725570ded6-0d/s250x400/39b84bd8cdd5111982eb82c1e132c71e00aca4cd.pnj"/>
 
 yep, thats all! check out my rentry for info about me :D
+
+credits to all artists ^_^
+
+credit to  nnikkouren on tumbler! for the spongebob stamps!
+
+credit to fyroix on tumblr! for the cat and Chiikawa stamps!
+
+credit to obsecuriites on tumblr!for the persona 5 ryuji stamp!
+
+credit to b-shful on tumblr for the postal dude stamp!
+
+credit to maximilliamgoof on tumblr for the smiling friend stamp!
+
+all other stamps, I could not find the artist so bear with me ^^, credit to them too but all of these stamps are free to use as the creators said!! :D
