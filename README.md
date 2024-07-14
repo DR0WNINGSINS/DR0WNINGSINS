@@ -17,7 +17,7 @@
 <img src="https://64.media.tumblr.com/c85aa0a330e9bbfb28242b73d74fde01/3eb2a1ff3fce4504-dd/s100x200/50109bec446aa56ccbd2c6d5cce412a63d3e0af5.pnj"/>
 <img src="https://64.media.tumblr.com/f33d8b77aa72a039e9ad4ae2cb51389b/20ed56725570ded6-0d/s250x400/39b84bd8cdd5111982eb82c1e132c71e00aca4cd.pnj"/>
 
-<p align="center"/>userboxs! I made the leon, carlos, mitsiki, My Bloody Valentine, and Bôa one!! the rest are by userbox in tumblr! F2U!!
+<p align="center"/>userboxes! I made the leon, carlos, mitsiki, My Bloody Valentine, and Bôa one!! the rest are by userbox in tumblr! F2U!!
   
 
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261907804910784592/Screenshot_2024-07-13_6.11.50_PM.png?ex=6694aab9&is=66935939&hm=f17889974b96d2fbdcfa001a20f26c326b4caa1c451ca4a0fba468916adfb585&" width="300"/>
