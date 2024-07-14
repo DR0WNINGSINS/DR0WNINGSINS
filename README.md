@@ -30,7 +30,7 @@
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908390377029673/Screenshot_2024-07-13_6.41.29_PM.png?ex=6694ab45&is=669359c5&hm=8afbcbdbc491264677a34a7bbb99f5e28512ebfbdc7f71efba144537f224c65a&" width="300"/>
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261909086157541396/Untitled43_20240713215551.png?ex=6694abeb&is=66935a6b&hm=6cfb08995720286d6cf1f648e831bb8aedd9420fb37cea247e9bab7e34374e4b&" width="300"/>
 
-**yep, thats all! check out my rentry for info about me :D**
+**yep, thats all! check out my main account, and read my carrd!! my rentry is still underconstruction but u may look ^^**
 
 credits to all artists ^_^
 
