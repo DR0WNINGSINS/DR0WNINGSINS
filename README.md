@@ -25,10 +25,9 @@
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908083786125454/tumblr_42dbcb1ab505e18541bd7d9717d465ae_9147a66b_540.jpg?ex=6694aafc&is=6693597c&hm=964f723b196e7c8552617e74d1d71d9ffff56447d6ae919be8da21f7ad20ba3d&" width="300"/>
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908084075397181/tumblr_bbcb5c0a2a105df1b054ff9bedf57f70_c10ee4be_540.jpg?ex=6694aafc&is=6693597c&hm=5689a7441a03a47f8e4635cb68059ff58de6df094528bc5187fe79455bd0e971&" width="300"/>
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908205391319110/tumblr_04973ab9ba18414f3b332f1b769f88e7_e5771e6c_540.jpg?ex=6694ab19&is=66935999&hm=0e8a83a68026f4901954c72d7da5b70d4d76b5327793526f65a9ea5d5f8be657&" width="300"/>
-<img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908271799861340/Screenshot_2024-07-13_6.28.40_PM.png?ex=6694ab29&is=669359a9&hm=f4c19fa4f5e9da121cebe55730c3ba20a41f0015b9ea860e00e444620c9b628a&" width="300"/>
+<img src="" width="300"/>
 <img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908322291023932/Screenshot_2024-07-13_6.32.03_PM.png?ex=6694ab35&is=669359b5&hm=a77f8014865ed686a55f2294086975821754402038b783f78bdb88461c1c993e&" width="300"/>
-<img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261908390377029673/Screenshot_2024-07-13_6.41.29_PM.png?ex=6694ab45&is=669359c5&hm=8afbcbdbc491264677a34a7bbb99f5e28512ebfbdc7f71efba144537f224c65a&" width="300"/>
-<img src="https://cdn.discordapp.com/attachments/1234273549250990172/1261909086157541396/Untitled43_20240713215551.png?ex=6694abeb&is=66935a6b&hm=6cfb08995720286d6cf1f648e831bb8aedd9420fb37cea247e9bab7e34374e4b&" width="300"/>
+<img src=""https://ibb.co/WV7tYd4"><img src="https://i.ibb.co/PDJQfbv/I-heart-Carlos.png" alt="I-heart-Carlos" <" width="300"/>
 
 **yep, thats all! check out my main account, and read my carrd!! my rentry is still underconstruction but u may look ^^**
 
