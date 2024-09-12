@@ -7,7 +7,7 @@
 <p align=center> <img src="https://files.catbox.moe/zurdmk.png" width="100"> <img src="https://files.catbox.moe/bl7tg0.png" width="100">
 <p align=center> <img src="https://files.catbox.moe/n61b73.png">
 <p align="center"> <img src="https://i.ibb.co/x6MzKkh/starr.png" width="500">
-<p align=center> <img src="https://i.ibb.co/9GKtnQn/tumblr-1a9e7087e2596f09987e28715b162292-bdb6aa90-1280.png" width="160">
+
 <p align=center> <img src="https://i.ibb.co/3SD1PKM/Alex-katy2.png" width="500">
 <p align=center> <img src="https://blinkies.cafe/b/display/0191-fallleaves.gif" width="200">
 <img src="https://blinkies.cafe/b/display/0196-browndog.gif" width="200">
